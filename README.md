@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @krystinafromgetaway
+- 👀 I’m interested in travel, healthcare, and philanthropy.
+- 🌱 I’m currently learning about design systems.
+- 💞️ I’m looking to support product founders on product management or GTM strategies.
+- 📫 How to reach me: krystina@getaway.events
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: self taught coder + host of Coding Happy Hours in Denver: https://www.facebook.com/groups/1743279486423467/
